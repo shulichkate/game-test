@@ -1,1 +1,1 @@
-https://westerovs.github.io/game-test/
+https://shulichkate.github.io/game-test/
